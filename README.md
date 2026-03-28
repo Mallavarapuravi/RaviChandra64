@@ -1,4 +1,4 @@
-# 💫 About Me:
+About Me 🖇️
 BTech 2026 AIML <br>SRGE College Gudlavalleru 
 
 
